@@ -1,3 +1,3 @@
 # varshapwalia.github.io
 
-Website have been moved to www.varshapwalia.com
+The website has been moved to www.varshapwalia.com
